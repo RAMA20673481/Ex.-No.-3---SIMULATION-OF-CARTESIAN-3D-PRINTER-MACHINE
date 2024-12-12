@@ -60,8 +60,8 @@
 
 ## Output:
 ![WhatsApp Image 2024-12-12 at 11 27 10_3f8d1986](https://github.com/user-attachments/assets/bcfd5d56-a8cc-48c3-960f-21e3b7f67126)
-![WhatsApp Image 2024-12-12 at 11 27 11_a50689ea](https://github.com/user-attachments/assets/122b0a39-2c73-4b27-8d1a-22ca137348ea)
-![WhatsApp Image 2024-12-12 at 11 27 11_ff3719a2](https://github.com/user-attachments/assets/d8179a8f-1d25-48ab-87b4-98e72905458f)
+![WhatsApp Image 2024-12-12 at 11 27 11_ff3719a2](https://github.com/user-attachments/assets/c3ef5446-a25c-4f4c-aedf-c9cd10198224)
+![WhatsApp Image 2024-12-12 at 11 27 11_a50689ea](https://github.com/user-attachments/assets/99c4281b-2b61-40b9-9cd9-efdec4541e66)
 ![WhatsApp Image 2024-12-12 at 11 27 12_4157e0d5](https://github.com/user-attachments/assets/f26f9394-f487-4c14-87f1-3ca4ebfe0d31)
 
 ### Name:G Ramanujam 
